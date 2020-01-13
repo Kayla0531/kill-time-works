@@ -1,0 +1,1 @@
+# created to store my codes that are done out of no reason (not school assignments, not extra practice, not anything)
